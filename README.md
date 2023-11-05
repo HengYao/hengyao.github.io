@@ -23,9 +23,9 @@ RESEARCH INTERESTS
 
 PROFESSIONAL ACTIVITIES
 
-Associate Editor: EURASIP Journal on Image and Video Processing
+	Associate Editor: EURASIP Journal on Image and Video Processing
 
-IEEE Member
+	IEEE Member
 
 EDUCATION
 
