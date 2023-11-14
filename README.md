@@ -25,6 +25,8 @@ PROFESSIONAL ACTIVITIES
 
 	Associate Editor: EURASIP Journal on Image and Video Processing
 
+	Associate Editor:  Frontiers in Imaging
+
 	IEEE Member
 
 EDUCATION
